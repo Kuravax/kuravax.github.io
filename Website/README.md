@@ -1,1 +1,0 @@
-# kuravax.github.io
